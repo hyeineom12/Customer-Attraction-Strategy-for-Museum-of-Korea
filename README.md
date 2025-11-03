@@ -1,1 +1,1 @@
-# Customer-Attraction-Strategy-for-Museum-of-Korea
+# Customer Attraction Strategy for Museum of Korea
